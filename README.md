@@ -6,7 +6,7 @@
 I'm Novva, i love to code for fun
 
 ### 📫 How to reach me
-I am most active on my Discord, however I have my direct-messages disabled. You can add me on snapchat novva_n.
+I am most active on Discord, however I have my direct-messages disabled. You can add me on snapchat novva_n.
 
 https://discord.gg/gov
 -->
